@@ -1,3 +1,8 @@
+JSL05 LOOM VIDEO LINK: [https://www.loom.com/share/79440e19890848df9c6902788c508352?sid=a45e61ea-4e04-4c76-a4b8-bc678d3eeb83]
+
+
+
+
 # [JSL05] Submission: Galaxy Playlist Generator
 
 You will:
